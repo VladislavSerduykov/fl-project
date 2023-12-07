@@ -1,0 +1,1 @@
+## [Макет](https://www.figma.com/file/NdSASvIlKrptSwKLfi5lEi/Технологии_FL?type=design&node-id=297-3734&mode=design&t=ewAQwNbYfFu35Mmn-0) 
